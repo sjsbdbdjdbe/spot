@@ -1,1 +1,1 @@
-spskwnss
+spskw
